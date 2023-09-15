@@ -6,8 +6,6 @@ https://minimal.gallery/
 
 https://www.darkmodedesign.com/
 
-https://www.darkmodedesign.com/
-
 https://saaslandingpage.com/
 
 https://www.lapa.ninja/
@@ -39,3 +37,5 @@ https://www.landing.love/
 https://www.perryw.ca/
 
 https://www.60fps.design/
+
+https://www.siteinspire.com/
