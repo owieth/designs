@@ -37,3 +37,5 @@ https://onepagelove.com/
 https://www.landing.love/
 
 https://www.perryw.ca/
+
+https://www.60fps.design/
