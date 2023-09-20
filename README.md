@@ -39,3 +39,5 @@ https://www.perryw.ca/
 https://www.60fps.design/
 
 https://www.siteinspire.com/
+
+https://maxibestof.one/
