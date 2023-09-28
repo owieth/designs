@@ -41,3 +41,6 @@ https://www.60fps.design/
 https://www.siteinspire.com/
 
 https://maxibestof.one/
+
+https://landings.dev/
+
