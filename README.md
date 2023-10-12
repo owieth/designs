@@ -6,6 +6,8 @@ https://minimal.gallery/
 
 https://www.darkmodedesign.com/
 
+https://darkmodes.com/
+
 https://saaslandingpage.com/
 
 https://www.lapa.ninja/
